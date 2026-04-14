@@ -1,6 +1,6 @@
 # Hi 👋 Im Adilon Monteiro
 
-🚀 **ADS Undergrauate at Unama | Aspiring Software Developer**🇧🇷 Brazil
+🚀 **ADS Undergrauate at Unama | Aspiring Software Developer** 🇧🇷 Brazil
 
 ---
 
